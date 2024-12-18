@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @saruman
+- 👋 Hi, I’m saruman
 - 👀 I have various interests and hobbies, among my favourite are dancing, sports, music and travelling.
 - 🌱 I’m currently learning ...
 
